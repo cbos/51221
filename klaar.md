@@ -1,7 +1,10 @@
 ## Klaar
 
-Gefeliciteerd, je hebt het einde gehaald.
+Gefeliciteerd, je hebt het einde gehaald!
 
+![Feest](feesttoeter.jfif "Feest")
 
+Je mag nu een schaar pakken en de zegels aan de voorkant open maken.    
+Heel veel plezier ermee!
 
-Je mag nu een schaar pakken en de zegels aan de voorkant open maken.
+Sint en puzzelpiet ;-)
